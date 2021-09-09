@@ -7,8 +7,8 @@
   🏅 programmer 
 
   🗣 English,Italian,Indian,Persian 
-- 👀 attractive ideas
-- 🌱 always reading
+- 👀 attractive ideas.
+- 🌱 always reading.
     Reaching me:
 - 📧 jafari.farvar2021@gmail.com
 - Instagram: @luxtasisat
