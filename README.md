@@ -1,14 +1,16 @@
 🖐 Hi , 안녕하세요 , سلام
-- I’m farvartish jafari
+- I’m farvartish jafari. honest with you.
 
    《با ما به ناممکن ها دست پیدا کنید》
 
   🏅 civil engineer
+
   🏅 programmer 
 
-  🗣 English,Italian,Indian,Persian 
+  🗣 English, Italian, Indian, Persian 
 - 👀 attractive ideas.
 - 🌱 always reading.
+
     Reaching me:
 - 📧 jafari.farvar2021@gmail.com
 - Instagram: @luxtasisat
